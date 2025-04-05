@@ -1,0 +1,2 @@
+# Gamba
+gold gold gold
